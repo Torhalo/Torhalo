@@ -1,0 +1,4 @@
+- 👋 Yo, I’m @Torhalo
+- 👀 I’m interested in Jailbraking
+- 🌱 I’m currently learning Html
+- 📫 How to reach me Idk find out how
